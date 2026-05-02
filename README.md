@@ -1,0 +1,1 @@
+# Presentation-about-Steve-Jobs-IT-24012
